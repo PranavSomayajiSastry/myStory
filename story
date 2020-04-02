@@ -1,0 +1,3 @@
+Deepa, once was going throught her school hallway and met Ankur. Anur asked her that why she had not gone home though the school was closed. She replied that she had to borrow some books and asked him didi he want some. He replied that his father woulden't allow him money to do so, he asked to lend him some books.
+The next day she started a fund for books, so she could help Ankur.
+After somedays she used this money and made a library in her school helping all the people there.
